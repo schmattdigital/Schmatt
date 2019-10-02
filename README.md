@@ -1,1 +1,1 @@
-# Schmatt
+# Schmatt Digital Ventures
